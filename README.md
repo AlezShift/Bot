@@ -1,1 +1,1 @@
-Some of yopu wonder whtat
+Shift Discord Bot V1.7
